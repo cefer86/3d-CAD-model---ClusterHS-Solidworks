@@ -1,0 +1,1 @@
+# 3d-CAD-model---ClusterHS-Solidworks
